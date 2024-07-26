@@ -16,7 +16,7 @@ situs judi bola agen casino online slot online terbaik
 
 situs judi bola terbesar di indonesia
 
-[daftar situs judi bola resmi dan terpercaya] (https://dentonrent.net)
+[daftar situs judi bola resmi dan terpercaya](https://dentonrent.net)
 
 situs judi bola terbesar di dunia
 
